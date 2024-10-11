@@ -7,4 +7,4 @@
 - 💬 Ask me about my favorite language.
 - 📫 How to reach me: fatiiBarrera21.
 - 😄 Pronouns: She / Her.
-- ⚡ Fun fact: I like to learn.
+- ⚡ Fun fact: I like to learn because I am student.
