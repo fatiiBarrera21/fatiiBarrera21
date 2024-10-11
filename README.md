@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning Java and Html.
 - 👯 I’m looking to collaborate on projects.
 - 🤔 I’m looking for help with Java and react.
-- 💬 Ask me about my favorite language.
+- 💬 Ask me about my favorites language.
 - 📫 How to reach me: fatiiBarrera21.
 - 😄 Pronouns: She / Her.
 - ⚡ Fun fact: I like to learn because I'm student.
